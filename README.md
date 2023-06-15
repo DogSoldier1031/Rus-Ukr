@@ -18,7 +18,7 @@ Thus, a nation is not a racial or tribal, but a historically constituted communi
 -J.V. Stalin
 https://www.marxists.org/reference/archive/stalin/works/1913/03a.htm#s1
 
-“According to your scheme, only such nations are to be recognised as nations as have their own state, separate from others, whereas all oppressed nations which have no independent statehood would have to be deleted from the category of nations; moreover, the struggle of oppressed nations against national oppression and the struggle of colonial peoples against imperialism would have to be excluded from the concept "national movement" and "national-liberation movement."
+“I think that the scheme you propose, with its new, fifth characteristic of the concept "nation," is profoundly mistaken and cannot be justified either theoretically or in practice, politically.  pAccording to your scheme, only such nations are to be recognised as nations as have their own state, separate from others, whereas all oppressed nations which have no independent statehood would have to be deleted from the category of nations; moreover, the struggle of oppressed nations against national oppression and the struggle of colonial peoples against imperialism would have to be excluded from the concept "national movement" and "national-liberation movement."
 More than that. According to your scheme we would have to assert:
 a) that the Irish became a nation only after the formation of the "Irish Free State," and that before that they did not constitute a nation;
 b) that the Norwegians were not a nation before Norway's secession from Sweden, and became a nation only after that secession;
