@@ -22,7 +22,9 @@ https://www.marxists.org/reference/archive/stalin/works/1913/03a.htm#s1
 More than that. According to your scheme we would have to assert:
 a) that the Irish became a nation only after the formation of the "Irish Free State," and that before that they did not constitute a nation;
 b) that the Norwegians were not a nation before Norway's secession from Sweden, and became a nation only after that secession;
-c) that the Ukrainians were not a nation when the Ukraine formed part of tsarist Russia; that they became a nation only after they seceded from Soviet Russia under the Central Rada and Hetman Skoropadsky, but again ceased to be a nation after they united their Ukrainian Soviet Republic with the other Soviet Republics to form the Union of Soviet Socialist Republics.”
+c) that the Ukrainians were not a nation when the Ukraine formed part of tsarist Russia; that they became a nation only after they seceded from Soviet Russia under the Central Rada and Hetman Skoropadsky, but again ceased to be a nation after they united their Ukrainian Soviet Republic with the other Soviet Republics to form the Union of Soviet Socialist Republics.
+A great many such examples could be cited.
+Obviously, a scheme which leads to such absurd conclusions cannot be regarded as a scientific scheme."
 -J.V. Stalin
 https://www.marxists.org/reference/archive/stalin/works/1929/03/18.htm
 
