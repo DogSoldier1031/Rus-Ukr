@@ -1,6 +1,5 @@
 Russia, Ukraine & the Soviet Union
-Dialectical &amp; Historical Materialist outline of Rus/Ukr events
-Some more background on Soviet, Russian & Ukrainian history and current events:
+Dialectical & Historical Materialist outline of Soviet, Russian & Ukrainian history and current events:
 
 https://en.m.wikipedia.org/wiki/Allied_intervention_in_the_Russian_Civil_War
 
