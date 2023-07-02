@@ -1,4 +1,4 @@
-# Rus-Ukr
+Russia, Ukraine & the Soviet Union
 Dialectical &amp; Historical Materialist outline of Rus/Ukr events
 Some more background on Soviet, Russian & Ukrainian history and current events:
 
