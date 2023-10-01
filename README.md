@@ -128,6 +128,14 @@ F C Notzon et al. JAMA. 1998.
 “The striking rise in Russian mortality is beyond the peacetime experience of industrialized countries, with a 5-year decline in life expectancy in 4 years' time. Many factors appear to be operating simultaneously, including economic and social instability, high rates of tobacco and alcohol consumption, poor nutrition, depression, and deterioration of the health care system. Problems in data quality and reporting appear unable to account for these findings. These results clearly demonstrate that major declines in health and life expectancy can take place rapidly.”
 https://pubmed.ncbi.nlm.nih.gov/9508159/
 
+“The period from 1990 to 1995 in the newly independent post-Soviet states was marked by an estimated extra 7 million premature deaths, 4 million in Russia alone.1 Many of these deaths were due to external causes and cardiovascular diseases.2”
+https://www.thelancet.com/journals/lanpub/article/PIIS2468-26671730072-5/fulltext#:~:text=The%20period%20from%201990%20to,4%20million%20in%20Russia%20alone.&text=Russian%20mortality%20trends%20for%201991,analysis%20by%20cause%20and%20region.&text=Many%20of%20these%20deaths%20were%20due%20to%20external%20causes%20and%20cardiovascular%20diseases
+
+“Male life expectancy at birth in Russia fell by six years between 1991 and 1994, from an already-low 63.4 years to 57.4 years over that period, an almost unprecedented decrease in life expectancy in three years.
+Footnote
+1 Female life expectancy followed a similar but less extreme pattern, falling from 74.2 to 71.1 years from 1991 to 1994 (Appendix Figure 1).”
+https://link.springer.com/article/10.1057/s41294-021-00169-w#
+
 Russian Street Kids (2002)
 https://m.youtube.com/watch?v=qFkLzJrvpaE
 
