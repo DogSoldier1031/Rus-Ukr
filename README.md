@@ -45,6 +45,8 @@ https://en.m.wikipedia.org/wiki/Holodomor_in_modern_politics#Recognition
 
 https://en.m.wikipedia.org/wiki/Holodomor_genocide_question
 
+https://the-revolution-report.com/articles/holodomor-myth-and-its-connection-to-modern-neo-nazi-propaganda-in-ukraine/
+
 The Soviets were one of the later European nations to sign a treaty with Nazi Germany:
 Four-Power Pact (July 1933)
 German–Polish declaration of non-aggression  (January 1934)
