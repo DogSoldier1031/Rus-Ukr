@@ -189,3 +189,18 @@ https://www.opendemocracy.net/en/odr/russian-politics-of-multiculturalism/
 https://m.youtube.com/watch?v=uSQ_3vfiRMs
 
 https://m.youtube.com/playlist?list=PLCFS2rj-qIVZMPUHA1wMyXtzRG0PZSK3t
+
+"Ukraine must stop ongoing abuses and war crimes by pro-Ukrainian volunteer forces"
+
+https://www.amnesty.org/en/latest/news/2014/09/ukraine-must-stop-ongoing-abuses-and-war-crimes-pro-ukrainian-volunteer-forces/
+
+"'Banderite' Rebrand: Ukrainian Police Declare Admiration For Nazi Collaborators To Make A Point"
+
+https://www.rferl.org/a/banderite-rebrand-ukrainian-police-declare-admiration-for-nazi-collaborators-to-make-a-point/29764110.html
+
+"It’s widely accepted that the counteroffensive has failed in its objectives and few breakthroughs are expected as winter sets in, although it has showed few signs of constraining military activity so far with fighting as intense as ever in war hot spots in eastern Ukraine.
+
+Russian forces are not only defending their entrenched positions — in Donetsk in eastern Ukraine, they’ve also been launching what even Ukraine describes as “significant offensive operations” around Avdiivka and Marinka in a bid to seize more of the region."
+
+https://www.cnbc.com/2023/12/12/ukraine-war-live-updates-latest-news-on-russia-and-the-war-in-ukraine.html#:~:text=It's%20widely%20accepted%20that%20the,hot%20spots%20in%20eastern%20Ukraine.
+
